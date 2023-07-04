@@ -13,3 +13,6 @@ Quem sabe a solidão, fim de quem ama</p>
 <p>Eu possa me dizer do amor (que tive):
 Que não seja imortal, posto que é chama
 Mas que seja infinito enquanto dure</p>
+
+<br>
+<q>Os versos foram escritos no Estoril, em outubro de 1939, e foram posteriormente publicados no livro Poemas, Sonetos e Baladas (1946). O poema ganhou logo fama e até hoje é conhecido por embalar casais apaixonados.</q>
