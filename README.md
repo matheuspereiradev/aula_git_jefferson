@@ -18,4 +18,4 @@ Que não seja imortal, posto que é chama
 Mas que seja infinito enquanto dure</p>
 
 <br>
-<q>Os versos foram escritos no Estoril, em outubro de 1939, e foram posteriormente publicados no livro Poemas, Sonetos e Baladas (1946).</q>
+<q>Os versos foram escritos no Estoril, em outubro de 1939, e foram posteriormente publicados no livro Poemas, Sonetos e Baladas (1946). O poema ganhou logo NOTORIEDADE e até hoje é conhecido por embalar casais apaixonados.</q>
